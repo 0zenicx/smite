@@ -1,1 +1,1 @@
-# smite
+Hm, Not Bad!
